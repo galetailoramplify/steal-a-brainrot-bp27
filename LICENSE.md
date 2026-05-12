@@ -1,4 +1,4 @@
-#  
+#  elite Scripts for steal a brainrot is the best steal a brainrot Script, featuring private server access and teleport. Safe and powerful for all your
 
 
 
